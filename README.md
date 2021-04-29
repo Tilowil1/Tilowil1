@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tilowil1
+- 👀 I’m interested in development, gaming, 3D modeling.
+- 🌱 I’m currently learning Javascript, HTML.
+- 💞️ I’m looking to collaborate on nothing for now
+- 📫 How to reach me :
+  - Dicord : Tilowil 🌈#0666
