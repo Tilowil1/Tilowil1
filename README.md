@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Javascript, HTML.
 - 💞️ I’m looking to collaborate on nothing for now
 - 📫 How to reach me :
-  - Dicord : Tilowil 🌈#0666
+  - Discord : Tilowil 🌈#0666
